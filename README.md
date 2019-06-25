@@ -1,3 +1,0 @@
-# sungkyun
-# sungkyun
-# sungkyun
